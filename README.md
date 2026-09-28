@@ -1,18 +1,19 @@
 <p align="center">
+<p align="center">
 <a href="https://github.com/schaumgeist/hits"><img alt="Hits" src="https://hits.sh/github.com/schaumgeist/hits.svg?extraCount=272&color=671b5b&labelColor=a5a39f"/></a>
  
 <p align="center"
 
 " what are these people watching, people like me? "
-  
+
 <p align="center"
 <p><img src= "https://i.postimg.cc/gjT9p822/Tumblr-l-56144288782422.jpg" height="370"></p>
 <p align="center"
-<p><img src=""https://postimg.cc/nXCR0wqz" target="_blank"><img src="https://i.postimg.cc/nXCR0wqz/Tumblr-l-29973791748247.png" alt="https://i.postimg.cc/nXCR0wqz/Tumblr-l-29973791748247.png"></a>"></p>
+<p><img src="https://i.postimg.cc/nXCR0wqz/Tumblr-l-29973791748247.png" alt="https://i.postimg.cc/nXCR0wqz/Tumblr-l-29973791748247.png"></a></p>
 
 <p align="center"
 
- 𑣲 ‎‎[straw](https://liebestag.straw.page/) 🏹 [atabook](https://schaumgeist.atabook.org/) 🏹 [guns](https://guns.lol/schaumgeist) 🏹 [tiktok](tiktok.com/@schaumgeist) 🏹 [roblox](https://www.roblox.com/users/2270439607/profile) .ᐟ
+  𑣲 ‎‎[straw](https://liebestag.straw.page/) 🏹 [atabook](https://schaumgeist.atabook.org/) 🏹 [guns](https://guns.lol/schaumgeist) 🏹 [tiktok](tiktok.com/@schaumgeist) 🏹 [roblox](https://www.roblox.com/users/2270439607/profile) .ᐟ
 
 <p align="center"
  
@@ -24,4 +25,4 @@
 
 <p align="center"
 
- 
+ i used to think i knew. now i'm not so sure.
