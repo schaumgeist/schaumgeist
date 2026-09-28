@@ -8,15 +8,15 @@
 <p align="center"
 <p><img src= "https://i.postimg.cc/gjT9p822/Tumblr-l-56144288782422.jpg" height="370"></p>
 <p align="center"
-<p><img src="<a href="https://postimg.cc/nXCR0wqz" target="_blank"><img src="https://i.postimg.cc/nXCR0wqz/Tumblr-l-29973791748247.png" alt="Tumblr-l-29973791748247"></a>"></p>
+<p><img src="<a href="https://postimg.cc/nXCR0wqz" target="_blank"><img src="https://i.postimg.cc/nXCR0wqz/Tumblr-l-29973791748247.png" alt="https://i.postimg.cc/nXCR0wqz/Tumblr-l-29973791748247.png"></a>"></p>
 
 <p align="center"
 
- 𑣲 ‎‎[straw](https://liebestag.straw.page/) ✘ [atabook](https://schaumgeist.atabook.org/) ✘ [guns](https://guns.lol/schaumgeist) ✘ [tiktok](tiktok.com/@schaumgeist) ✘ [roblox](https://www.roblox.com/users/2270439607/profile) .ᐟ
+ 𑣲 ‎‎[straw](https://liebestag.straw.page/) 🏹 [atabook](https://schaumgeist.atabook.org/) 🏹 [guns](https://guns.lol/schaumgeist) 🏹 [tiktok](tiktok.com/@schaumgeist) 🏹 [roblox](https://www.roblox.com/users/2270439607/profile) .ᐟ
 
 <p align="center"
  
-/!\  no dni , i block freely
+⚠️  no dni , i block freely
  
 <p align="center"
 
@@ -24,4 +24,4 @@
 
 <p align="center"
 
- art cred : ?
+  I used to think I knew. Now I'm not so sure.
