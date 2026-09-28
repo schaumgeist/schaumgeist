@@ -8,7 +8,7 @@
 <p align="center"
 <p><img src= "https://i.postimg.cc/gjT9p822/Tumblr-l-56144288782422.jpg" height="370"></p>
 <p align="center"
-<p><img src="<a href="https://postimg.cc/nXCR0wqz" target="_blank"><img src="https://i.postimg.cc/nXCR0wqz/Tumblr-l-29973791748247.png" 
+<p><img src=""https://postimg.cc/nXCR0wqz" target="_blank"><img src="https://i.postimg.cc/nXCR0wqz/Tumblr-l-29973791748247.png" alt="https://i.postimg.cc/nXCR0wqz/Tumblr-l-29973791748247.png"></a>"></p>
 
 <p align="center"
 
@@ -24,4 +24,4 @@
 
 <p align="center"
 
-  I used to think I knew. Now I'm not so sure.
+ 
